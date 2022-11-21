@@ -1,1 +1,1 @@
-Belajar Readme
+lihat lah dah buka lah mata hati mu
